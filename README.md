@@ -1,0 +1,1 @@
+# minimum-oklid-mesafesinin-hesaplanmas-
